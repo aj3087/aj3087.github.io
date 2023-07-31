@@ -1,3 +1,3 @@
-# Hi! I'm Shreyas
+# Hi! I'm Aarushi
 
-Welcome to my peronal portfolio!
+Welcome to my personal portfolio!
